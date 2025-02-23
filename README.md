@@ -14,7 +14,8 @@ I work in the **Cross-Border domain** and build systems around it.
 ---
 
 ### 📫 Let's Connect:
-- 💼 [LinkedIn](https://www.linkedin.com/in/vishal2611) 
+- 💼 [LinkedIn](https://www.linkedin.com/in/vishal2611)
+- 📀 [YT](https://studio.youtube.com/channel/UC90EQOvIw0kl8qStcXZN1Xw)
 
 ---
 
